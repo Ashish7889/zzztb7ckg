@@ -9,5 +9,5 @@ below is the marker image
 ![image](https://github.com/user-attachments/assets/e1fe7994-9338-4045-9c4b-36fef2f3b6f4)
 by scanning the marker image the video of reva university video will be getting played 
 https://ashish7889.github.io/zzztb7ckg/
-this is the above link just by clocking the link just scan the marker image and you will be getting your results 
+this is the above link just by clicking the link just scan the marker image and you will be getting your results 
 
